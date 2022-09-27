@@ -38,4 +38,6 @@ O código estava pela metade e dei continuidade obedecendo as regras descritas a
 
 ## Certificado 📝
 
+[Click 🧾](https://www.dio.me/certificate/B3F258F2/share)
+[Digital Innovation One](https://www.dio.me/?ref=RE6NDV822B)
 
